@@ -4,7 +4,7 @@
 
 Japanese married women on weekdays:
 
-![Image of Married Women on Weekdays]()
+![Image of Married Women on Weekdays](Japanese_tempograms/img/tempogram Japanese women on weekdays.png)
 
 Japanese married men on weekdays (notice the amount of paid work time):
 
